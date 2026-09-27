@@ -1,4 +1,4 @@
-# Hey, I'm Sharon 👋
+# Hi There! I'm Sharon 
 
 I like building things that make me understand how they work.
 
